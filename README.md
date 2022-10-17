@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @exscruzme
+- 👋 Hi, I’m Stephanie. I am a software engineer and co-founder of CSMA Technology, looking for interesting projects and challenging problems to solve. 
 - 👀 I’m interested in travel, music, games, human computer interaction, STEM education, animals
 - 🌱 I’m currently learning how to be an entrepreneur!
 - 📫 How to reach me
